@@ -1,27 +1,29 @@
 # Tania Kuhay (asei-boss)
 
-**Former CEO, Advanced Software Enterprises Inc (2017-2024) | Currently Retired**
+**Startup Business Development Expert | Currently Full-Time Mom**
 
 ## About
 
-Co-founder and former CEO of [Advanced Software Enterprises Inc](https://www.asei.systems/). Managed business operations, paperwork, and finances while supporting the technical leadership from company founding in 2017 until stepping back in 2024 to focus on family.
+Business development specialist who made 20+ startups happen through exceptional ability to create roadmaps, find first paying customers, and get people excited about new ventures.
 
-## Experience
+Background managing championship extreme sports teams in Europe. Uniquely gifted at getting businesses to rocket up by securing customers before any coding begins.
 
-**CEO & Co-Founder, Advanced Software Enterprises Inc (2017-2024)**
-- Co-founded company with principal engineer Vadim Kuhay
-- Handled business operations, finance, and administrative functions
-- Managed paperwork, contracts, and behind-the-scenes business activities
-- Transitioned leadership responsibilities when stepping back for family
+## Approach
+
+**Business Development Philosophy:**
+- Get first paying customers ASAP (before building anything)
+- Create excitement that makes everything happen
+- Build startup roadmaps that actually work
+- Focus on business fundamentals, not technology
+
+**Notable:** Contributed to early development of advanced AI assistant systems and helped establish multiple successful ventures through pure business development expertise.
 
 ## Current Status
 
-**Retired (2024-Present)** - Full-time focus on family and children.
+**Full-time mom** focused on family. Not involved in current technical consulting work.
 
-## Contact
-
-For ASE Inc business matters, please contact the company directly at [asei.systems](https://www.asei.systems/).
+**Legacy:** Many entrepreneurs remember breakthrough business development that launched their ventures.
 
 ---
 
-*Family-focused approach to business and life.*
+*Making businesses happen through people, not technology.*
