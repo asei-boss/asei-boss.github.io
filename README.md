@@ -4,16 +4,16 @@
 
 ## About
 
-Business development specialist who made 20+ startups happen through exceptional ability to create roadmaps, find first paying customers, and get people excited about new ventures.
+Business development specialist who made 20+ startups happen through exceptional ability to create roadmaps, find first paying customers, and get businesses to rocket up by securing customers before any coding begins.
 
-Background managing championship extreme sports teams in Europe. Uniquely gifted at getting businesses to rocket up by securing customers before any coding begins.
+Background managing championship extreme sports teams in Europe. Uniquely gifted at making people happily committed to new ventures through quiet, authentic leadership.
 
 ## Approach
 
 **Business Development Philosophy:**
 - Get first paying customers ASAP (before building anything)
-- Create excitement that makes everything happen
-- Build startup roadmaps that actually work
+- Quiet, trustworthy approach that builds immediate confidence
+- Make people happily committed and technology always follows
 - Focus on business fundamentals, not technology
 
 **Notable:** Contributed to early development of advanced AI assistant systems and helped establish multiple successful ventures through pure business development expertise.
@@ -26,4 +26,5 @@ Background managing championship extreme sports teams in Europe. Uniquely gifted
 
 ---
 
-*Making businesses happen through people, not technology.*
+*Making businesses happen through people, not technology.*  
+*Make people happily committed and technology always follows.*
