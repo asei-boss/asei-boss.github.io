@@ -11,18 +11,19 @@ Background managing championship extreme sports teams in Europe. Uniquely gifted
 ## Approach
 
 **Business Development Philosophy:**
-- Get first paying customers ASAP (before building anything)
-- Quiet, trustworthy approach that builds immediate confidence
-- Make people happily committed and technology always follows
-- Focus on business fundamentals, not technology
 
-**Notable:** Contributed to early development of advanced AI assistant systems and helped establish multiple successful ventures through pure business development expertise.
+- Get first paying customers ASAP (before building anything).
+- Quiet, trustworthy approach that builds immediate confidence.
+- Make people happily committed and technology always follows.
+- Focus on business fundamentals, not technology or hype.
+
+**Notable:** Facilitated early development of advanced AI research systems and helped establish multiple successful ventures through pure business development expertise.
 
 ## Current Status
 
-**Full-time mom** focused on family. Not involved in current technical consulting work.
+**Full-time mom** happily focused on family. Not actively involved in current business ventures.
 
-**Legacy:** Many entrepreneurs remember breakthrough business development that launched their ventures.
+**Legacy:** Many daring entrepreneurs remember breakthrough business development that launched their ventures. And I'm grateful to them for making this world a better place.
 
 ---
 
